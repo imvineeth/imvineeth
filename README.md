@@ -20,7 +20,7 @@ I'm a passionate Technical Architect with over 11 years of experience in the tec
 - Open-source contributions
 
 ### 📫 How to Reach Me
-- [Email](mailto:imvineeth@outlook.com)
+- [Email](mailto:im.vineeth@outlook.com)
 
 ### 📸 Photography
 - I have a keen eye for capturing moments and enjoy exploring the art of photography.
